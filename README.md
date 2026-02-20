@@ -1,0 +1,1 @@
+# The-Gnosis-Quantum-Relay-Karaoke-Reconciliation-Protocol-GQ-KRP-A-Gadgetic-Proposal
